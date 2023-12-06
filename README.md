@@ -5,3 +5,9 @@ ok due to nature of the file window defender classify it as virus ;-; u may need
 
 god i wanna fuck the github cat so bad
 
+benefit:
+ + sexy blue ui
+ + it works
+downsides:
+ + pings from ur connection
+ + may get blacklisted but only a teeny tiny bit
